@@ -11,7 +11,7 @@
 - 📊 Interested in Data Visualization, Dashboard Creation, and EDA  
 - 🚀 Working on Analytics and Machine Learning projects  
 - 🏆 Vice President of the Drone Club  
-- 🤝 Open to internships and collaboration opportunities  
+- 🤝 Open to job opportunities and collaborations  
 - 📫 How to reach me: **dumbhareawanti00@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
